@@ -1,1 +1,3 @@
-# disciplines-of-a-godly-man
+# *The Disciplines of a Godly Man: A Transformative Journey Through R. Kent Hughes’ Timeless Classic*
+## *In an age of “life hacks” and instant gratification, the concept of discipline often feels like a relic of a bygone era. Yet, for the Christian man, discipline is not a burden; it is the path to freedom. R. Kent Hughes’ seminal work, Disciplines of a Godly Man, stands as a modern classic, challenging men to trade spiritual lethargy for a life of purpose, strength, and godliness.* [More details…](https://spiritualkhazaana.com/disciplines-of-a-godly-man-timeless-classic/)
+## #disciplinesofagodlyman #godliness #surrender #humility #wordofgod
